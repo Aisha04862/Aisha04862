@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aisha04862
+- 👋 Hi, I’m Aisha Deejay!
 - 👀 I’m interested in artifical intelligence and cyber security
 - 🌱 I’m currently attending Cal State University Fullerton
 - 📫 How to reach me adeejay04@gmail.com
